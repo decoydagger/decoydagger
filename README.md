@@ -1,5 +1,6 @@
 <div align="center">
 
- 🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 I WILL GET PAVLOVA COOKIE IM MANIFESTING IT  🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 🕯 
+ 
+![](https://komarev.com/ghpvc/?username=pavlovacookie&label=Hearts+Reached&color=red)
 
 </div>
